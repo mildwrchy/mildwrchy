@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **Warunchaya.13@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFY4O4r7OE/rRbU5bwz9z_DiWk4kab2DQ/view?utm_content=DAFY4O4r7OE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFY4O4r7OE/rRbU5bwz9z_DiWk4kab2DQ/view?utm_content=DAFY4O4r7OE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences [Warunchaya's Resume](https://www.canva.com/design/DAFY4O4r7OE/rRbU5bwz9z_DiWk4kab2DQ/view?utm_content=DAFY4O4r7OE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 - ⚡ Fun fact **I’m an Idealist with ISFP personality type. This means ISFPs are hands-on people. Rather than thinking, brainstorming ideas or long-term planning. Where ISFP's outstanding thing is understanding and helping others, if this gives you a better idea of my personality.**
 
