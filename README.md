@@ -1,11 +1,12 @@
 <h1 align="center">Hi 👋, I'm Warunchaya Chunthawong</h1>
-<h3 align="center">A passionate Computer Engineering Student from UTCC</h3>
+<h3 align="center">a third-year student in Computer and Artificial Intelligence from UTCC</h3>
 <img align="right" alt="Coding" width="350" src="https://i.pinimg.com/originals/fc/71/63/fc71635c7f1b09ed30413f59bb749582.gif">
 
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=mildwrchy&label=Profile%20views&color=0e75b6&style=flat" alt="mildwrchy" /> </p>
 
-- 🌱 I’m currently learning **a third-year student in Computer and Artificial Intelligence**
+-  🔭 I’m currently working on **Personalized Healthy Diet Platform**
+- 🌱 I’m currently learning **Flutter Developer for Mobile Application**
 
 - 📫 How to reach me **Warunchaya.13@gmail.com**
 
